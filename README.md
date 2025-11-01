@@ -61,7 +61,7 @@ Violations may result in takedown requests or legal action.
 
 ## 📫 Contact
 **Shane Green (ShaneYLad)**  
-Email: [shane.green1@proton.me](mailto:shane.green1@proton.me)
+Email: [shane.green1@proton.me](mailto:shane.green1@proton.me)   
 Signal: [ShaneGreen.76](https://signal.me/#eu/4fPKFJ5PoE7nb0EgDM5DKx2LlOy2ebWx6JBoCaahT04sMW92hJhMC54AJrfE6Iwk)  
 
 
